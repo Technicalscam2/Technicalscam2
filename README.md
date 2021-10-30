@@ -7,5 +7,5 @@
 Technicalscam2/Technicalscam2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Subscribe my Channe here 
+Subscribe my Channel here 
 https://www.youtube.com/channel/UCzXpkTEU3HNU_62onFlu5kg
